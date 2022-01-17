@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @asven2011
+- 👀 I’m interested in gaming/coding
+- 🌱 I’m currently learning с++
+- 📫 How to reach me tg @jojobabua
